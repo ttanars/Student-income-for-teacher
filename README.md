@@ -1,0 +1,1 @@
+# Student-income-for-teacher
